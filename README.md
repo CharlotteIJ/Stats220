@@ -15,7 +15,7 @@
 * A random child once asked me if I can fart out of my butt chin and I haven't been the same since
 * I failed to get into medicine so now I'm coding memes!! My parents must be so proud
 
-**My captures have requested an ordered list**
+**My captors have requested an ordered list**
 1. Live
 2. Laugh
 3. Love
