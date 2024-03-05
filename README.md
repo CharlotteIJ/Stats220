@@ -7,7 +7,7 @@
 
 ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
 
-# My name is Charlotte Vivienne Ingram-Johnson!
+## My name is Charlotte Vivienne Ingram-Johnson!
 *I thank my parents for a name that really rolls of the tounge!!*
 
 **Here's some awesome facts about me!**
