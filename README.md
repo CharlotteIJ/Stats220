@@ -24,4 +24,4 @@ Click the sketchy link below to donate to my cause!!!
 
 ![](https://hasbulbrothers.com/wp-content/uploads/2023/05/Arrows-3-pointing-down-arrow-down-animated.gif) 
 
-[https://www.gofundme.com/Mcdonalds_worker_in_need](https://www.youtube.com/watch?v=BbeeuzU5Qc8)
+[https://www.gofundme.com/Mcdonalds_worker_in_need](https://www.youtube.com/shorts/9Uz08BySlsI)
